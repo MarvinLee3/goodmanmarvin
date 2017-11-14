@@ -1,2 +1,2 @@
 # goodmanmarvin
-I am good man
+I am a good man
